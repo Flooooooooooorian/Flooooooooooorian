@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨‍💻 Probably conding<br>⛳ or golfing right now
+👨‍💻 Probably coding<br>⛳ or golfing right now
 
 
 ## 🌐 Socials:
